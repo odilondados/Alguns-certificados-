@@ -1,4 +1,4 @@
-# gjdbhfjd
+# Alguns certificados .
 ![Ambima bancos](https://github.com/odilondados/gjdbhfjd/assets/93781298/148ede29-e0c2-4b49-a448-eebdd152e0eb)
 
 ![Bootcamp](https://github.com/odilondados/gjdbhfjd/assets/93781298/f5e351fd-f2e9-4515-9bf6-ddc13560fc29)
